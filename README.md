@@ -42,8 +42,11 @@ Responsabilidades legais e penalidades
 🏢 Diferenciais STC
 
 ✔ Treinamentos atualizados conforme legislação vigente
+
 ✔ Metodologia prática e objetiva
+
 ✔ Instrutores qualificados
+
 ✔ Conteúdo adaptado à realidade da empresa
 
 A STC está comprometida em transformar a segurança do trabalho em um valor estratégico, contribuindo para ambientes mais seguros, produtivos e em conformidade com a lei.
