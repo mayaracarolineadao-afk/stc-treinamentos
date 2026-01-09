@@ -1,5 +1,3 @@
-# STC Treinamentos
-STC Treinamentos Corporativos
 # STC - Treinamentos Corporativos
 
 Site institucional da **STC – Semensato Treinamentos Corporativos**.
