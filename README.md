@@ -2,8 +2,6 @@
 
 # STC - Treinamentos Corporativos
 
-## Tecnologias
-
 <img width="331" height="257" alt="Captura de tela 2025-11-04 224043" src="https://github.com/user-attachments/assets/98433ae7-2a3b-4be9-b102-43ad0306fb4e" />
 
 Com foco em gestão estratégica, consultoria especializada e treinamentos técnicos, promovemos ambientes de trabalho mais seguros, humanos e em conformidade legal.
