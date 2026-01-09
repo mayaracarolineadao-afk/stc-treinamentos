@@ -55,7 +55,6 @@ Responsabilidades legais e penalidades
 A STC está comprometida em transformar a segurança do trabalho em um valor estratégico, contribuindo para ambientes mais seguros, produtivos e em conformidade com a lei.
 
 📩 Entre em contato e solicite uma proposta personalizada.
-Entre em contato para agendar sua visita!
 WHATSAPP:
 (19) 98291-3237
 ---
